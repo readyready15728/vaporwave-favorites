@@ -1,6 +1,6 @@
 # Vaporwave Favorites
 
-## Essence
+## ESSENCE
 
 * [ａｌｌ　ｇｏｏｄ　ｔｏｄａｙ](https://essencewave.bandcamp.com/track/--37)
 * [ａｌｗａｙｓ](https://essencewave.bandcamp.com/track/--21)
