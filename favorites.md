@@ -83,7 +83,7 @@
 * [you can sense it](https://fortune500.bandcamp.com/track/you-can-sense-it)
 * [you](https://luxuryelite.bandcamp.com/track/you)
 
-##  t e l e p a t h and Agia
+## t e l e p a t h and Agia
 
 * [Kiss Away My Fear](https://telepathtelepath.bandcamp.com/track/kiss-away-my-fear)
 * [Sankaku Kankei](https://telepathtelepath.bandcamp.com/track/sankaku-kankei)
