@@ -20,6 +20,11 @@
 * [ｓｔｏｒｅ　ｓｅｃｒｅｔ](https://essencewave.bandcamp.com/track/--84)
 * [ｓｕｒｐｒｉｓｅｓ](https://essencewave.bandcamp.com/track/--22)
 
+## KALEEMXWILL
+
+* [Moon's Intimidation](https://flamingovapor.bandcamp.com/track/moons-intimidation)
+* [Sun's Strength](https://flamingovapor.bandcamp.com/track/suns-strength)
+
 ## Nathan Norham
 
 * [Hidden Recording](https://boguscollective.bandcamp.com/track/hidden-recording)
