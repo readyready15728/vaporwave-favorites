@@ -1,7 +1,10 @@
 # Vaporwave Favorites
 
-## ESSENCE
+## Cendana Heavy Industries
 
+* [Truthers](https://flamingovapor.bandcamp.com/track/truthers)
+
+## ESSENCE
 * [ａｌｌ　ｇｏｏｄ　ｔｏｄａｙ](https://essencewave.bandcamp.com/track/--37)
 * [ａｌｗａｙｓ](https://essencewave.bandcamp.com/track/--21)
 * [ｃｈｏｏｓｅｎ　ｃｌｅｆ](https://essencewave.bandcamp.com/track/--81)
@@ -20,10 +23,36 @@
 * [ｓｔｏｒｅ　ｓｅｃｒｅｔ](https://essencewave.bandcamp.com/track/--84)
 * [ｓｕｒｐｒｉｓｅｓ](https://essencewave.bandcamp.com/track/--22)
 
+## Echo Beach
+
+* [Assembly Language](https://adhesivesounds.bandcamp.com/track/echo-beach-assembly-language)
+* [Zero-G Fishbowl](https://adhesivesounds.bandcamp.com/track/echo-beach-zero-g-fishbowl)
+* [豊田SUPRA](https://adhesivesounds.bandcamp.com/track/echo-beach-supra)
+
+## Eleven Eastern
+
+* [III](https://adhesivesounds.bandcamp.com/track/iii)
+* [II](https://adhesivesounds.bandcamp.com/track/ii)
+* [VIII](https://adhesivesounds.bandcamp.com/track/viii)
+* [VII](https://adhesivesounds.bandcamp.com/track/vii)
+* [V](https://adhesivesounds.bandcamp.com/track/v)
+* [XI](https://adhesivesounds.bandcamp.com/track/xi)
+* [X](https://adhesivesounds.bandcamp.com/track/x)
+
+## Ellington Locklear
+
+* [North Platte ☛ Marriot Bay](https://boguscollective.bandcamp.com/track/north-platte-marriot-bay)
+* [Eco Tourism](https://boguscollective.bandcamp.com/track/eco-tourism)
+* [Reef State Park](https://boguscollective.bandcamp.com/track/reef-state-park)
+
 ## KALEEMXWILL
 
 * [Moon's Intimidation](https://flamingovapor.bandcamp.com/track/moons-intimidation)
 * [Sun's Strength](https://flamingovapor.bandcamp.com/track/suns-strength)
+
+## MELTNET
+* [Cassette Girl](https://sunsetgrid.bandcamp.com/track/cassette-girl)
+* [Miracles](https://sunsetgrid.bandcamp.com/track/miracles)
 
 ## Nathan Norham
 
