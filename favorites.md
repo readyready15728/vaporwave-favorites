@@ -61,6 +61,12 @@
 * [Linspire Effect (SYD-213)](https://boguscollective.bandcamp.com/track/linspire-effect-syd-213)
 * [Trampoline (NHDTB-008)](https://boguscollective.bandcamp.com/track/trampoline-nhdtb-008)
 
+## Paternoster Poetry
+
+* [Inspiration](https://steviasphere.bandcamp.com/track/inspiration)
+* [Is this vaporwave?](https://steviasphere.bandcamp.com/track/is-this-vaporwave)
+* [Polygons](https://steviasphere.bandcamp.com/track/polygons)
+
 ## V A P O R S O F T W O R K S 蒸気ソフ
 
 * [Deliver](https://boguscollective.bandcamp.com/track/deliver)
