@@ -45,6 +45,10 @@
 * [Eco Tourism](https://boguscollective.bandcamp.com/track/eco-tourism)
 * [Reef State Park](https://boguscollective.bandcamp.com/track/reef-state-park)
 
+## Hollow Speedfreak
+
+* [Gaze](https://boguscollective.bandcamp.com/track/gaze)
+
 ## KALEEMXWILL
 
 * [Moon's Intimidation](https://flamingovapor.bandcamp.com/track/moons-intimidation)
