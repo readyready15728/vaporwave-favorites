@@ -76,6 +76,10 @@
 * [Deliver](https://boguscollective.bandcamp.com/track/deliver)
 * [Your Turn](https://boguscollective.bandcamp.com/track/your-turn)
 
+## haircuts for men
+
+* [car key jingle](https://haircutsformen.bandcamp.com/track/car-key-jingle)
+
 ## luxury elite
 
 * [Cimarron](https://wearetar.bandcamp.com/track/cimarron)
