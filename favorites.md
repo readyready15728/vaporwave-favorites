@@ -65,6 +65,10 @@
 * [Linspire Effect (SYD-213)](https://boguscollective.bandcamp.com/track/linspire-effect-syd-213)
 * [Trampoline (NHDTB-008)](https://boguscollective.bandcamp.com/track/trampoline-nhdtb-008)
 
+## Neon Tiger
+
+* [Sashay](https://boguscollective.bandcamp.com/track/sashay)
+
 ## Paternoster Poetry
 
 * [Inspiration](https://steviasphere.bandcamp.com/track/inspiration)
