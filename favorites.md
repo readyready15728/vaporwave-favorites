@@ -1,5 +1,8 @@
 # Vaporwave Favorites
 
+## A u t o m a t i c ドン
+* [ローロデックス](https://sunsetgrid.bandcamp.com/track/--452)
+
 ## Cendana Heavy Industries
 
 * [Truthers](https://flamingovapor.bandcamp.com/track/truthers)
@@ -172,3 +175,4 @@
 ## 猫 シ Corp.
 * [Commercials](https://catsystemcorp.bandcamp.com/track/commercials)
 * [Commercials](https://catsystemcorp.bandcamp.com/track/commercials-2)
+
