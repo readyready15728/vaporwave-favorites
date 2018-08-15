@@ -161,6 +161,10 @@
 * [Sankaku Kankei](https://telepathtelepath.bandcamp.com/track/sankaku-kankei)
 * [Seaside Escapade](https://telepathtelepath.bandcamp.com/track/seaside-escapade)
 
+## ⊛ われらは平和に来る≌≟ SUNSHINE STATE SECURITY
+
+* [Amp It Up](https://fantasy-deluxe.bandcamp.com/track/amp-it-up)
+
 ## 土星４ＩＯ
 
 * [ＢＩＧ ＩＮ ＪＡＰＡＮ](https://flamingovapor.bandcamp.com/track/--238)
