@@ -168,6 +168,10 @@
 
 * [Amp It Up](https://fantasy-deluxe.bandcamp.com/track/amp-it-up)
 
+## ミスト M Y S T
+
+* [l o o k あなたがしたこと](https://boguscollective.bandcamp.com/track/l-o-o-k)
+
 ## 土星４ＩＯ
 
 * [ＢＩＧ ＩＮ ＪＡＰＡＮ](https://flamingovapor.bandcamp.com/track/--238)
@@ -175,4 +179,3 @@
 ## 猫 シ Corp.
 * [Commercials](https://catsystemcorp.bandcamp.com/track/commercials)
 * [Commercials](https://catsystemcorp.bandcamp.com/track/commercials-2)
-
