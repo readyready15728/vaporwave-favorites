@@ -31,13 +31,13 @@
 * [豊田SUPRA](https://adhesivesounds.bandcamp.com/track/echo-beach-supra)
 
 ## Eleven Eastern
-* [III](https://adhesivesounds.bandcamp.com/track/iii)
 * [II](https://adhesivesounds.bandcamp.com/track/ii)
-* [VIII](https://adhesivesounds.bandcamp.com/track/viii)
-* [VII](https://adhesivesounds.bandcamp.com/track/vii)
+* [III](https://adhesivesounds.bandcamp.com/track/iii)
 * [V](https://adhesivesounds.bandcamp.com/track/v)
-* [XI](https://adhesivesounds.bandcamp.com/track/xi)
+* [VII](https://adhesivesounds.bandcamp.com/track/vii)
+* [VIII](https://adhesivesounds.bandcamp.com/track/viii)
 * [X](https://adhesivesounds.bandcamp.com/track/x)
+* [XI](https://adhesivesounds.bandcamp.com/track/xi)
 
 ## Ellington Locklear
 * [North Platte ☛ Marriot Bay](https://boguscollective.bandcamp.com/track/north-platte-marriot-bay)
