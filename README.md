@@ -4,7 +4,6 @@
 * [ローロデックス](https://sunsetgrid.bandcamp.com/track/--452)
 
 ## Cendana Heavy Industries
-
 * [Truthers](https://flamingovapor.bandcamp.com/track/truthers)
 
 ## ESSENCE
@@ -27,13 +26,11 @@
 * [ｓｕｒｐｒｉｓｅｓ](https://essencewave.bandcamp.com/track/--22)
 
 ## Echo Beach
-
 * [Assembly Language](https://adhesivesounds.bandcamp.com/track/echo-beach-assembly-language)
 * [Zero-G Fishbowl](https://adhesivesounds.bandcamp.com/track/echo-beach-zero-g-fishbowl)
 * [豊田SUPRA](https://adhesivesounds.bandcamp.com/track/echo-beach-supra)
 
 ## Eleven Eastern
-
 * [III](https://adhesivesounds.bandcamp.com/track/iii)
 * [II](https://adhesivesounds.bandcamp.com/track/ii)
 * [VIII](https://adhesivesounds.bandcamp.com/track/viii)
@@ -43,21 +40,17 @@
 * [X](https://adhesivesounds.bandcamp.com/track/x)
 
 ## Ellington Locklear
-
 * [North Platte ☛ Marriot Bay](https://boguscollective.bandcamp.com/track/north-platte-marriot-bay)
 * [Eco Tourism](https://boguscollective.bandcamp.com/track/eco-tourism)
 * [Reef State Park](https://boguscollective.bandcamp.com/track/reef-state-park)
 
 ## HACHIROKUハチロク
-
 * [Ｃｌｕｓｔｅｒ Ｓｕｐｐｅ](https://sunsetgrid.bandcamp.com/track/--421)
 
 ## Hollow Speedfreak
-
 * [Gaze](https://boguscollective.bandcamp.com/track/gaze)
 
 ## KALEEMXWILL
-
 * [Moon's Intimidation](https://flamingovapor.bandcamp.com/track/moons-intimidation)
 * [Sun's Strength](https://flamingovapor.bandcamp.com/track/suns-strength)
 
@@ -66,41 +59,33 @@
 * [Miracles](https://sunsetgrid.bandcamp.com/track/miracles)
 
 ## Nathan Norham
-
 * [Hidden Recording](https://boguscollective.bandcamp.com/track/hidden-recording)
 * [Hockey Match (PPPD172)](https://boguscollective.bandcamp.com/track/hockey-match-pppd172)
 * [Linspire Effect (SYD-213)](https://boguscollective.bandcamp.com/track/linspire-effect-syd-213)
 * [Trampoline (NHDTB-008)](https://boguscollective.bandcamp.com/track/trampoline-nhdtb-008)
 
 ## Neon Tiger
-
 * [Sashay](https://boguscollective.bandcamp.com/track/sashay)
 
 ## Paternoster Poetry
-
 * [Inspiration](https://steviasphere.bandcamp.com/track/inspiration)
 * [Is this vaporwave?](https://steviasphere.bandcamp.com/track/is-this-vaporwave)
 * [Polygons](https://steviasphere.bandcamp.com/track/polygons)
 
 ## REdcloud64
-
 * [Dreamscape](https://boguscollective.bandcamp.com/track/dreamscape)
 
 ## V A P O R S O F T W O R K S 蒸気ソフ
-
 * [Deliver](https://boguscollective.bandcamp.com/track/deliver)
 * [Your Turn](https://boguscollective.bandcamp.com/track/your-turn)
 
 ## Zero Two
-
 * [Deep Cobra - Deep Forrest](https://sunsetgrid.bandcamp.com/track/deep-forrest)
 
 ## haircuts for men
-
 * [car key jingle](https://haircutsformen.bandcamp.com/track/car-key-jingle)
 
 ## luxury elite
-
 * [Cimarron](https://wearetar.bandcamp.com/track/cimarron)
 * [Crystal](https://crashsymbols.bandcamp.com/track/crystal)
 * [Exposé](https://wearetar.bandcamp.com/track/expos)
@@ -159,17 +144,14 @@
 * [you](https://luxuryelite.bandcamp.com/track/you)
 
 ## t e l e p a t h and Agia
-
 * [Kiss Away My Fear](https://telepathtelepath.bandcamp.com/track/kiss-away-my-fear)
 * [Sankaku Kankei](https://telepathtelepath.bandcamp.com/track/sankaku-kankei)
 * [Seaside Escapade](https://telepathtelepath.bandcamp.com/track/seaside-escapade)
 
 ## ⊛ われらは平和に来る≌≟ SUNSHINE STATE SECURITY
-
 * [Amp It Up](https://fantasy-deluxe.bandcamp.com/track/amp-it-up)
 
 ## ミスト M Y S T
-
 * [l o o k あなたがしたこと](https://boguscollective.bandcamp.com/track/l-o-o-k)
 
 ## 世界は80年代に終了しました
@@ -182,7 +164,6 @@
 * [Young Parisian](https://sunsetgrid.bandcamp.com/track/young-parisian)
 
 ## 土星４ＩＯ
-
 * [ＢＩＧ ＩＮ ＪＡＰＡＮ](https://flamingovapor.bandcamp.com/track/--238)
 
 ## 猫 シ Corp.
