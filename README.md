@@ -172,6 +172,15 @@
 
 * [l o o k あなたがしたこと](https://boguscollective.bandcamp.com/track/l-o-o-k)
 
+## 世界は80年代に終了しました
+* [Copy Rights](https://sunsetgrid.bandcamp.com/track/copy-rights)
+* [Cultural Industrial](https://sunsetgrid.bandcamp.com/track/cultural-industrial)
+* [End Credit](https://sunsetgrid.bandcamp.com/track/end-credit)
+* [VH Yes](https://sunsetgrid.bandcamp.com/track/vh-yes)
+* [The Dream Trade](https://sunsetgrid.bandcamp.com/track/7-the-dream-trade)
+* [The Dreams Fade (Feat. S p o r t 3 0 0 0)](https://sunsetgrid.bandcamp.com/track/8-the-dreams-fade-feat-s-p-o-r-t-3-0-0-0)
+* [Young Parisian](https://sunsetgrid.bandcamp.com/track/young-parisian)
+
 ## 土星４ＩＯ
 
 * [ＢＩＧ ＩＮ ＪＡＰＡＮ](https://flamingovapor.bandcamp.com/track/--238)
