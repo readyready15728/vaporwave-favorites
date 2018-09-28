@@ -3,6 +3,9 @@
 ## A u t o m a t i c ドン
 * [ローロデックス](https://sunsetgrid.bandcamp.com/track/--452)
 
+## CALI四TYPE
+* [もにかそくスニソクモラミシ](https://boguscollective.bandcamp.com/track/--597)
+
 ## Cendana Heavy Industries
 * [Truthers](https://flamingovapor.bandcamp.com/track/truthers)
 
